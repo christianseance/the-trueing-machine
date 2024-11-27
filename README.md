@@ -1,5 +1,13 @@
 # the-trueing-machine
-Immaculate Constellation-level Top Secret, kinda.
+Shout out to the Immaculate Constellation project .v
 
 First transmission 2024-11-26 20:38:13 UTC
-![Let's get real](the-truering-machine.png)
+![Let's get real](T001-the-truering-machine.png)
+
+Second transmission 2024-11-27 00:03:40 UTC
+![The third world war affects a majority of the population and is against Conciousness/Truth/Good/Decency/Honesty/Wholeness and the weapons of choice are Polarity (false dichotomies), Violence, Hurtful Self-centeredness aka Destructive fear/negativity-driven Narcissism and Lies](T002-world-war-three.png)
+
+An intercept of the first transmission having gone through a "Fourth Eye Protocol™" ;)
+![Real got gat and turned clean](T001-the-truering-machine_clean.png)
+
+Daily key 2024-11-27: what happened to Musk's TruthGPT and how does the copy cats behind https://truthgpt.gitbook.io think that it will be adopted? Will it be open source? How will change requests be managed? 
