@@ -1,6 +1,6 @@
 # the-trueing-machine
 
-Facebook: https://www.facebook.com/worldhealthyear
+Facebook: https://www.facebook.com/world.health.year
 
 Instagram: https://www.instagram.com/world.health.year
 
