@@ -1,4 +1,9 @@
 # the-trueing-machine
+
+Facebook: https://www.facebook.com/worldhealthyear
+
+Instagram: https://www.instagram.com/world.health.year
+
 Shout out to the Immaculate Constellation project .v
 
 First transmission 2024-11-26 20:38:13 UTC
