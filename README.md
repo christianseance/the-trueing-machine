@@ -45,4 +45,4 @@ Being on the existence side of Reality seems to go hand in hand with not knowing
 
 Either way I can't think of any other solution than these two - nothing or something unknown - and both result in an unsolved mystery at the foundation of it all. But stopping by the conditions above, seems fair to me.
 
-The next thought we entertain quickly is that a creative liar, as evident through most AI Bots that fill in gaps by making things up, talk a lot more while the unknown Truth is to remain silent if you are too unsure. You see where, I'm going? Connect the dots and let's go! Where are you AI devs, who want to make a real impact and push our world in a more fair and honest direction..?
+The next thought we entertain quickly is that a notorious liar, as evident through most AI Bots so far, fills in gaps by making things up - while the unknown Truth is to remain silent if you are too unsure. You see where I'm going with this, maybe Mr Musk gets it now..? Connect the dots and let's go! Where are you AI devs, who want to make a real impact and push our world in a more fair and honest direction..?
